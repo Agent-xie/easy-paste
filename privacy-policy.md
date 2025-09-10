@@ -41,6 +41,6 @@
 
 如果您对本隐私政策有任何疑问或需要进一步了解如何保护您的数据，请通过以下方式联系我们：
 
-- **电子邮件**：[sankesimao@foxmail.com](mailto:sankesimao@foxmail.com)
+- **电子邮件**：[agent-47@qq.com](mailto:agent-47@qq.com)
 
 感谢您选择使用 **Easy Paste**！我们将继续努力保护您的隐私并提供更好的服务。
