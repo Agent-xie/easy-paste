@@ -12,7 +12,7 @@
 ## 联系我们
 
 如果您有任何问题或需要技术支持，请通过以下方式联系我们：
-- **支持邮箱**：[sankesimao@foxmail.com](mailto:sankesimao@foxmail.com)
+- **支持邮箱**：[agent-47@qq.com](mailto:agent-47@qq.com)
 
 ## 错误报告
 
