@@ -41,6 +41,6 @@ We may update this privacy policy from time to time. The updated privacy policy 
 
 If you have any questions about this privacy policy or would like to know more about how we protect your data, please contact us at:
 
-- **Email**: [sankesimao@foxmail.com](mailto:sankesimao@foxmail.com)
+- **Email**: [agent-47@qq.com](mailto:agent-47@qq.com)
 
 Thank you for choosing **Easy Paste**! We will continue to work hard to protect your privacy and provide better services.
