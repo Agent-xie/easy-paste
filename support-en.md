@@ -12,7 +12,7 @@
 ## Contact Us
 
 If you have any questions or need technical support, please contact us through the following methods:
-- **Support Email**: [sankesimao@foxmail.com](mailto:sankesimao@foxmail.com)
+- **Support Email**: [agent-47@qq.com](mailto:agent-47@qq.com)
 
 ## Error Reporting
 
